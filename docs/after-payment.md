@@ -30,6 +30,6 @@
 - 兑换申请编号
 - ChatGPT 设置页的截图
 
-CallAI小铺 的客服：Telegram [@C1099Z](https://t.me/C1099Z)、@kkktxt，QQ 271859061。
+CallAI小铺 的客服：Telegram [@kkktxt](https://t.me/kkktxt)、[@C1099Z](https://t.me/C1099Z)，QQ 271859061。
 
 > 质保期内会员提前掉了，同样按上面三样材料联系客服。账号被封禁、额度用完、会员正常到期，不在订阅质保范围内。
